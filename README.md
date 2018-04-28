@@ -1,2 +1,0 @@
-# majiang
-wannianmajiang
